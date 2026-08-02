@@ -1,5 +1,3 @@
-<img align="right" width="900px" height="1000px" src="https://i.postimg.cc/HLhX8TCf/Tumblr-l-70030565284481.png">
-
 
 <img align="left" width="40%" src="https://i.postimg.cc/Fs1nkHc7/Untitled200-20260803013041.png"> 
 <img align="left" width="400px" height="200px" src="https://i.postimg.cc/gkkqnSCf/Untitled203-20260803020432.png"> 
@@ -22,3 +20,5 @@ II‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ �
 
 
 
+
+<img align="right" width="900px" height="1000px" src="https://i.postimg.cc/HLhX8TCf/Tumblr-l-70030565284481.png">
