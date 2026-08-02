@@ -20,4 +20,4 @@ II‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ �
 
 
 
-<img align="right" width="600px" height="1000px" src="https://i.postimg.cc/HLhX8TCf/Tumblr-l-70030565284481.png">
+<img align="right" width="900px" height="1000px" src="https://i.postimg.cc/HLhX8TCf/Tumblr-l-70030565284481.png">
