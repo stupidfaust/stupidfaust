@@ -15,7 +15,7 @@ II‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ �
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎Ი𐑼ֶָ֢  ‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ⤷ ゛ ‎‎‎ᶠᵃᵘˢᵗ‎ ‎ ‎‎ ‎ ‎‎ ‎ ♡‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎‎ ‎ ‎ ₐZᵤᵣₑ ⸝⸝  ﹒﹒ ‎  ‎  ‎  ‎ ꜰᴀᴜꜱᴛling <3
 
 
-<img align="right" width="90px" height="50px" src="https://i.postimg.cc/LswvKthB/Untitled204-20260803024722.png"> <img align="right" width="100px" height="50px" src="https://i.postimg.cc/VN1jPKWB/Tumblr-l-1144327302485918.png"> <img align="right" width="300px" height="50px" src="https://i.postimg.cc/MZctDrPF/Tumblr-l-345825467080689.gif">
+<img align="right" width="60px" height="50px" src="https://i.postimg.cc/LswvKthB/Untitled204-20260803024722.png"> <img align="right" width="100px" height="50px" src="https://i.postimg.cc/VN1jPKWB/Tumblr-l-1144327302485918.png"> <img align="right" width="300px" height="50px" src="https://i.postimg.cc/MZctDrPF/Tumblr-l-345825467080689.gif">
 
 
 
