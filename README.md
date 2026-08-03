@@ -1,7 +1,7 @@
 <div align="center">
 
 
-><img width="350" height="300" alt="image" src="https://i.postimg.cc/Fs1nkHc7/Untitled200-20260803013041.png" />
+><img width="350" height="320" alt="helpidkhowthisworks" src="https://i.postimg.cc/Fs1nkHc7/Untitled200-20260803013041.png" />
 
 KIMC‎HI‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ .‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎II
 
