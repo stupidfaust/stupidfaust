@@ -9,7 +9,7 @@ hi idk how to code so this is basic...
 i cos <sub>**faust**</sub> a lot and that's about it ^_^  
 <sup>c+h</sup> is *enc* etc ... no dni 	<ins>except -14 </ins>  ૮꒰՞ ܸ.ˬ.ܸ՞𐦯   
 <details>
-<summary>im a yume of</summary>
+<summary>i yume with</summary>
 
 ```
    lcb5, lcb10, V1[NONsharing] + others
