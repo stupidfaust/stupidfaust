@@ -3,10 +3,21 @@
 
 ><img width="350" height="320" alt="helpidkhowthisworks" src="https://i.postimg.cc/Fs1nkHc7/Untitled200-20260803013041.png" />
 
-kimchi ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ .‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎𝐈𝐈
+## <sup>kimchi</sup> . <sup>II</sup> ❖≔﴾═══════ﺤ <sup>II</sup> = <sup>want</sup>  
+♯┆<sub>faust</sub>  .ᐟ  ...  any ノ all prns  
+hi idk how to code so this is the best it'll get ...  
+i cos <sub>**faust**</sub> most of the time and thats about it ^_^  
+<sup>c+h</sup> is *enc* etc ... no dni 	<ins>except -14 </ins>  ૮꒰՞ ܸ.ˬ.ܸ՞𐦯   
+<details>
+<summary>im a yume of</summary>
 
-𝐈𝐈 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ =‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎  ‎want 
+```
+   lcb5, lcb10, V1[NONsharing] + others
+```
 
-Ი𐑼ֶָ֢  ‎ ‎ ‎‎ ⤷ ゛ ‎‎‎ᶠᵃᵘˢᵗ‎ ‎ ‎‎ ‎ ‎‎ ‎ ♡‎ ‎ ‎‎ ‎  ‎ ‎ ‎‎‎ ‎ ‎  ‎ ‎ ˖ ⊹ ₐZᵤᵣₑ 
+</details>    
 
-⸝⸝  ﹒﹒ ‎  ‎  ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ꜰᴀᴜꜱᴛling <3  ‎ ‎ ‎ ‎. . .
+(\ (\     
+(„• ֊ •„) ♡    
+━O━O━━━━━    
+[rentry](https://rentry.co/walp) + [ata](https://stupidfaust.atabook.org/)  
